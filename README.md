@@ -3,7 +3,6 @@
 -  I’m currently learning DATA ANALYSIS , PYTHON
 -  I’m looking to collaborate on INNOVATIVE TECH PROJECTS
 -  How to reach me atharvadhawale80@gmail.com
--  Pronouns: he
 -  Fun fact: I have a knack for entrepreneurship and love bringing innovative ideas to life.
 
 <!---
